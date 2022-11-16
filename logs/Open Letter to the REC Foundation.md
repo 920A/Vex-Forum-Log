@@ -7,24 +7,20 @@ Already, there have been [several extremely credible allegations](https://chiefd
 
 I was able to talk to a source (who wishes to remain anonymous) close to the IFI inner circle of executives, where the problems lay. Here is some of what they told me:
 
-```
-What is wild to me is that even RECF is tainted, and people do not understand the entanglements. Allegedly the reason two execs just quietly left was due to a secret affair. Now those two are supposedly running their own company and are hosting the inaugural signature event in Las Vegas, with support from guess who: Tony.
-```
-```
-acceptance of misogyny is rampant among the exec level. An exec who just left was among the worst offenders. Would make outright passes at the young women in the office.
-```
-```
-Tony was never around, but always had to be the decision maker.
-```
-```
-I would hold Paul [Copioli], and every executive accountable, to an extent. Enough people knew where the issues stemmed from, but were unwilling to form a party to fix it, therefore complicit in allowing the environment to exist for harassment to thrive.
-```
+> What is wild to me is that even RECF is tainted, and people do not understand the entanglements. Allegedly the reason two execs just quietly left was due to a secret affair. Now those two are supposedly running their own company and are hosting the inaugural signature event in Las Vegas, with support from guess who: Tony.
+
+> acceptance of misogyny is rampant among the exec level. An exec who just left was among the worst offenders. Would make outright passes at the young women in the office.
+
+> Tony was never around, but always had to be the decision maker.
+
+> I would hold Paul [Copioli], and every executive accountable, to an extent. Enough people knew where the issues stemmed from, but were unwilling to form a party to fix it, therefore complicit in allowing the environment to exist for harassment to thrive.
+
 As the source explains, a former executive turned signature event partner, someone clearly endorsed by the REC Foundation, is themselves allegedly guilty of similar misconduct.
 
 It is beyond clear that this is a systemic issue within IFI and RECF, and not something specific to a single individual.
-```
-The Robotics Education & Competition (REC) Foundation’s global mission is to provide every educator with competition, education, and workforce readiness programs to increase student engagement in science, technology, engineering, math, and computer science.
-```
+
+> The Robotics Education & Competition (REC) Foundation’s global mission is to provide every educator with competition, education, and workforce readiness programs to increase student engagement in science, technology, engineering, math, and computer science.
+
 This is the REC Foundation’s mission statement.
 
 @DanMantz, how can the RECF justify its continued partnership with VEX, given what we know to be true about conditions in and around IFI?
