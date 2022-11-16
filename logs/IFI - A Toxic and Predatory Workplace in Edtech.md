@@ -50,9 +50,8 @@ As a chief referee and GDC member, I would have more interactions with the RECF 
 The tipping point for me was after a consequential 2018 / 2019 production trip season.
 
 My life and a fellow executive’s life were threatened over a phone call to Mr. Norman regarding an issue that we found during a production ramp-up trip. The executive who I was traveling with confided at the time that this was the worst outburst he had ever seen from Mr. Norman. We would later that day have an emergency company all-call with most engineering staff across the three IFI companies to attempt to find a remedy solution.
-```
-“What [r-slur] designed this?” - TN
-```
+> “What [r-slur] designed this?” - TN
+
 And, for the record, I was the [r-slur], on the phone with all the other execs and engineers when Tony dropped that line. Mr. Norman knew exactly who did the design work and who approved it, yet chose to chastise and single me out in front of all of my peers. This type of language is another small example of the non-inclusive environment Mr. Norman fosters for his employees.
 
 As a result of the repeated mental abuses faced, over time my daily commute would become a daily battle of “do I drive into the median or to the office”. It was only then I realized that I needed to remove myself from the IFI environment as a matter of self-preservation. I would leave IFI immediately following the conclusion of the 2019 VEX World Championship event.
