@@ -15,3 +15,5 @@ A [log](https://github.com/920A/Vex-Forum-Log/tree/main/logs) containing the *ex
 | [IFI/VEX Response](https://www.vexforum.com/t/ifi-vex-response/109172?u=creation) | [IFI/VEX Response](https://www.chiefdelphi.com/t/ifi-vex-response/417791?u=creation) |
 | - | [How I was Abused by 148, IFI, and Grant Cox](https://www.chiefdelphi.com/t/cw-si-sh-substance-abuse-sexual-harassment-how-i-was-abused-by-148-ifi-and-grant-cox/418327?u=creation) |
 | - | [Max Boord](https://www.chiefdelphi.com/t/cw-sexual-abuse-max-boord/417484?u=creation) |
+
+[Download](https://drive.google.com/u/1/uc?id=1_hcZhWZT3M5ZJhsxXHjN0Uf1ZgpbzrfC&export=download&confirm=t) the archive (4.61 GB)
