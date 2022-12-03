@@ -18,4 +18,4 @@ A [log](https://github.com/920A/Vex-Forum-Log/tree/main/logs) containing the *ex
 | - | [Max Boord](https://www.chiefdelphi.com/t/cw-sexual-abuse-max-boord/417484?u=creation) | - |
 | - | - | [Dan Mantz and Tony Norman Sexually Harassed Me](https://www.theg2m.com/t/cw-sexual-harrasment-dan-mantz-and-tony-norman-sexually-harassed-me/539?u=creation)
 
-[Download](https://drive.google.com/u/1/uc?id=1_hcZhWZT3M5ZJhsxXHjN0Uf1ZgpbzrfC&export=download&confirm=t) the archive (4.61 GB)
+[Download](https://drive.google.com/u/1/uc?id=1_hcZhWZT3M5ZJhsxXHjN0Uf1ZgpbzrfC&export=download&confirm=t) the old Vex Forum archive (4.61 GB)
