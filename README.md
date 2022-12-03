@@ -8,6 +8,7 @@ A [log](https://github.com/920A/Vex-Forum-Log/tree/main/logs) containing the *ex
 
 | Vex Forum | Chief Delphi | The G2M |
 | :-: | :-: | :-: |
+| - | [Sam Barbee](https://www.chiefdelphi.com/t/sam-barbee-cw-suicide-sexual-harassment-sexual-assault-grooming/417434?u=creation) | - |
 | [Open Letter to the REC Foundation](https://www.vexforum.com/t/cw-sexual-harassment-open-letter-to-the-rec-foundation/109021?u=creation) | - | - |
 | [Hannah Brooke](https://www.vexforum.com/t/cw-sexual-misconduct-involving-a-minor-grooming-hannah-brooke/109029?u=creation) | - | - |
 | [IFI - A Toxic and Predatory Workplace in Edtech](https://www.vexforum.com/t/cw-violence-sexual-harassment-ifi-a-toxic-and-predatory-workplace-in-edtech/109149?u=creation) | [IFI - A Toxic and Predatory Workplace in Edtech](https://www.chiefdelphi.com/t/cw-violence-sexual-harassment-ifi-a-toxic-and-predatory-workplace-in-edtech/417760?u=creation) | - |
