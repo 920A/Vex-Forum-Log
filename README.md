@@ -17,5 +17,6 @@ A [log](https://github.com/920A/Vex-Forum-Log/tree/main/logs) containing the *ex
 | - | [How I was Abused by 148, IFI, and Grant Cox](https://www.chiefdelphi.com/t/cw-si-sh-substance-abuse-sexual-harassment-how-i-was-abused-by-148-ifi-and-grant-cox/418327?u=creation) | - |
 | - | [Max Boord](https://www.chiefdelphi.com/t/cw-sexual-abuse-max-boord/417484?u=creation) | - |
 | - | - | [Dan Mantz and Tony Norman Sexually Harassed Me](https://www.theg2m.com/t/cw-sexual-harrasment-dan-mantz-and-tony-norman-sexually-harassed-me/539?u=creation)
+| - | - | [My Experience of Abuse at IFI and VEX](https://www.theg2m.com/t/cw-assualt-my-experience-of-abuse-at-ifi-and-vex/598?u=creation)
 
 [Download](https://drive.google.com/u/1/uc?id=1_hcZhWZT3M5ZJhsxXHjN0Uf1ZgpbzrfC&export=download&confirm=t) the old Vex Forum archive (4.61 GB)
