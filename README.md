@@ -1,5 +1,5 @@
 # Vex Forum Log
-A [log](https://github.com/920A/Vex-Forum-Log/tree/main/logs) containing the *exact* statements made by users on the Vex Forum. This log was created as a backup in case anything were to happen to the originals.
+A log containing the *exact* statements made by users on the Vex Forum. This log was created as a backup in case anything were to happen to the originals.
 <hr>
 
 
@@ -18,6 +18,7 @@ A [log](https://github.com/920A/Vex-Forum-Log/tree/main/logs) containing the *ex
 | - | [Max Boord](https://www.chiefdelphi.com/t/cw-sexual-abuse-max-boord/417484?u=creation) | - |
 | - | - | [Dan Mantz and Tony Norman Sexually Harassed Me](https://www.theg2m.com/t/cw-sexual-harrasment-dan-mantz-and-tony-norman-sexually-harassed-me/539?u=creation)
 | - | - | [My Experience of Abuse at IFI and VEX](https://www.theg2m.com/t/cw-assualt-my-experience-of-abuse-at-ifi-and-vex/598?u=creation)
-| [Update to REC Foundation Community - December 9 2022](https://www.vexforum.com/t/update-to-rec-foundation-community-december-9-2022/110094) | - | - |
+| [Update to REC Foundation Community - December 9 2022](https://www.vexforum.com/t/update-to-rec-foundation-community-december-9-2022/110094?u=creation) | - | - |
+| - | [An Open Letter to VEX](https://www.chiefdelphi.com/t/cw-sexual-harassment-an-open-letter-to-vex/416929?u=creation) | - |
 
 [Download](https://drive.google.com/u/1/uc?id=1_hcZhWZT3M5ZJhsxXHjN0Uf1ZgpbzrfC&export=download&confirm=t) the old Vex Forum archive (4.61 GB)
