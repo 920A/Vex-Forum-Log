@@ -20,5 +20,6 @@ A log containing the *exact* statements made by users on the Vex Forum. This log
 | - | - | [My Experience of Abuse at IFI and VEX](https://www.theg2m.com/t/cw-assualt-my-experience-of-abuse-at-ifi-and-vex/598?u=creation)
 | [Update to REC Foundation Community - December 9 2022](https://www.vexforum.com/t/update-to-rec-foundation-community-december-9-2022/110094?u=creation) | - | - |
 | - | [An Open Letter to VEX](https://www.chiefdelphi.com/t/cw-sexual-harassment-an-open-letter-to-vex/416929?u=creation) | - |
+| - | - | [Tony Norman is Probably Worse Than You Think](https://www.theg2m.com/t/tony-norman-is-probably-worse-than-you-think/861?u=creation) |
 
 [Download](https://drive.google.com/u/1/uc?id=1_hcZhWZT3M5ZJhsxXHjN0Uf1ZgpbzrfC&export=download&confirm=t) the old Vex Forum archive (4.61 GB)
