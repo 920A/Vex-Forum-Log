@@ -14,7 +14,7 @@ A log containing the *exact* statements made by users on the Vex Forum. This log
 | [IFI - A Toxic and Predatory Workplace in Edtech](https://www.vexforum.com/t/cw-violence-sexual-harassment-ifi-a-toxic-and-predatory-workplace-in-edtech/109149?u=creation) | [IFI - A Toxic and Predatory Workplace in Edtech](https://www.chiefdelphi.com/t/cw-violence-sexual-harassment-ifi-a-toxic-and-predatory-workplace-in-edtech/417760?u=creation) | - |
 | [Statement to REC Foundation Community](https://www.vexforum.com/t/statement-to-rec-foundation-community/109171?u=creation) | - | - |
 | [IFI/VEX Response](https://www.vexforum.com/t/ifi-vex-response/109172?u=creation) | [IFI/VEX Response](https://www.chiefdelphi.com/t/ifi-vex-response/417791?u=creation) | - |
-| - | [How I was Abused by 148, IFI, and Grant Cox](https://www.chiefdelphi.com/t/cw-si-sh-substance-abuse-sexual-harassment-how-i-was-abused-by-148-ifi-and-grant-cox/418327?u=creation) | - |
+| - | [How I was Abused by 148, IFI, and Grant Cox](https://www.chiefdelphi.com/t/cw-si-sh-substance-abuse-sexual-harassment-how-i-was-abused-by-148-ifi-and-grant-cox/418327?u=creation) | [How I was Abused by 148, IFI, and Grant Cox](https://www.theg2m.com/t/cw-si-sh-substance-abuse-sexual-harassment-how-i-was-abused-by-148-ifi-and-grant-cox/478?u=creation) |
 | - | [Max Boord](https://www.chiefdelphi.com/t/cw-sexual-abuse-max-boord/417484?u=creation) | - |
 | - | - | [Dan Mantz and Tony Norman Sexually Harassed Me](https://www.theg2m.com/t/cw-sexual-harrasment-dan-mantz-and-tony-norman-sexually-harassed-me/539?u=creation)
 | - | - | [My Experience of Abuse at IFI and VEX](https://www.theg2m.com/t/cw-assualt-my-experience-of-abuse-at-ifi-and-vex/598?u=creation)
